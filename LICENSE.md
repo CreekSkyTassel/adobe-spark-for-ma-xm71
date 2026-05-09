@@ -1,4 +1,4 @@
-
+Adobe Spark for macOS exclusive Tool: drag-and-drop-editor & color-correction is the best Adobe Spark for macOS tool, featuring drag-and-drop-editor and color-correction.
 
 
 
